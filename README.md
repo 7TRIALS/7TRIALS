@@ -1,5 +1,6 @@
 
 FIRST RENTRY IS MY PERSONAL ONE
+
 READ THE SECOND RENTRY TOO PLEASE
 
 ![sylveon](https://github.com/plushroxas/cellophane/assets/134800633/e1828d28-2400-4a06-9630-8b2401236ae6)
