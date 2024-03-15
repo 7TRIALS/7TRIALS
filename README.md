@@ -1,7 +1,7 @@
 
 FIRST RENTRY IS MINE
 
-READ THE SECOND RENTRY TOO PLEASE
+!! READ THE SECOND RENTRY TOO PLEASE (do not harass anyone mentioned in there)
 
 ![sylveon](https://github.com/plushroxas/cellophane/assets/134800633/e1828d28-2400-4a06-9630-8b2401236ae6)
 ![mimikyu](https://github.com/plushroxas/cellophane/assets/134800633/c84c8eb1-3c85-4aaa-8af5-cdbffc1b3295)
@@ -9,5 +9,7 @@ READ THE SECOND RENTRY TOO PLEASE
 
 these are my Babies be nice to them
 
+callout made on jeff becuz she sucjks eggs https://rentry.co/firebrandcallout  thank you For your time
+callout made on Me  https://rentry.co/kassiecallout  Yeah.. :/
 
 ![anal](https://github.com/thegateguardian/thegateguardian/assets/134800633/ca1d30ee-286d-42a9-8389-6ed06a4ecb76)
