@@ -1,7 +1,7 @@
 
-FIRST RENTRY IS MINE
+FIRST RENTRY IS MINE, SECOND IS MADE BY MY GOOD FRIEND JEFF (thank you so much ughjjh)
 
-!! READ THE SECOND RENTRY TOO PLEASE (do not harass anyone mentioned in there)
+!! READ THE THIRD RENTRY TOO PLEASE (do not harass anyone mentioned in there)
 
 ![sylveon](https://github.com/plushroxas/cellophane/assets/134800633/e1828d28-2400-4a06-9630-8b2401236ae6)
 ![mimikyu](https://github.com/plushroxas/cellophane/assets/134800633/c84c8eb1-3c85-4aaa-8af5-cdbffc1b3295)
