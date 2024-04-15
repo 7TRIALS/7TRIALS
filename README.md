@@ -1,7 +1,5 @@
 
-FIRST RENTRY IS MINE, SECOND IS MADE BY MY GOOD FRIEND JEFF (thank you so much ughjjh)
-
-!! READ THE THIRD RENTRY TOO PLEASE (do not harass anyone mentioned in there)
+FIRST RENTRY IS MINE, SECOND IS MADE BY MY GOOD FRIEND JEFF @scenemo (thank you so much ughjjh)
 
 also i  got copied i guess here... https://rentry.co/bigcopycat
 
@@ -10,9 +8,5 @@ also i  got copied i guess here... https://rentry.co/bigcopycat
 ![haunter](https://github.com/plushroxas/cellophane/assets/134800633/59e40132-9b5c-4b7b-94a7-48b7dbec0170)
 
 these are my Babies be nice to them
-
-callout made on jeff becuz she sucjks eggs https://rentry.co/firebrandcallout  thank you For your time
-
-callout made on Me  https://rentry.co/kassiecallout  Yeah.. :/
 
 ![anal](https://github.com/thegateguardian/thegateguardian/assets/134800633/ca1d30ee-286d-42a9-8389-6ed06a4ecb76)
