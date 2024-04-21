@@ -1,7 +1,7 @@
 
 FIRST RENTRY IS MINE, SECOND IS MADE BY MY GOOD FRIEND JEFF @scenemo (thank you so much ughjjh)
 
-also i  got copied i guess here... https://rentry.co/bigcopycat
+also i  got copied i guess [here](https://rentry.co/bigcopycat)... 
 
 ![sylveon](https://github.com/plushroxas/cellophane/assets/134800633/e1828d28-2400-4a06-9630-8b2401236ae6)
 ![mimikyu](https://github.com/plushroxas/cellophane/assets/134800633/c84c8eb1-3c85-4aaa-8af5-cdbffc1b3295)
