@@ -1,5 +1,5 @@
 
-FIRST RENTRY IS MINE, SECOND IS MADE BY MY GOOD FRIEND [JEFF](https://github.com/HopsitaI) (thank you so much ughjjh)
+FIRST RENTRY IS MINE, SECOND IS MADE BY MY GOOD FRIEND JEFF (thank you so much ughjjh)
 
 also i  got copied i guess [here](https://rentry.co/bigcopycat)... 
 
