@@ -4,5 +4,8 @@
 ![haunter](https://github.com/plushroxas/cellophane/assets/134800633/59e40132-9b5c-4b7b-94a7-48b7dbec0170)
 
 these are my Babies be nice to them
+changed my rentry a *little* bit NOT TOO MUCH
+
+[stamp collection here](https://rentry.co/stackdump)
 
 ![anal](https://github.com/thegateguardian/thegateguardian/assets/134800633/ca1d30ee-286d-42a9-8389-6ed06a4ecb76)
