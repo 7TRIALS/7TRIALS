@@ -7,6 +7,8 @@ these are my Babies be nice to them
 
 changed my rentry a *little* bit NOT TOO MUCH
 
+second rentry made BY MY GOOD FRIEND JANE .......
+
 [stamp collection here](https://rentry.co/stackdump)
 
 ![anal](https://github.com/thegateguardian/thegateguardian/assets/134800633/ca1d30ee-286d-42a9-8389-6ed06a4ecb76)
