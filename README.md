@@ -5,8 +5,6 @@
 
 these are my Babies be nice to them
 
-changed my rentry a *little* bit NOT TOO MUCH
-
 second rentry made BY MY GOOD FRIEND JANE .......
 
 [stamp collection here](https://rentry.co/stackdump)
