@@ -7,6 +7,8 @@ these are my Babies be nice to them
 
 second rentry made BY MY GOOD FRIEND JANE .......
 
-[stamp collection here](https://rentry.co/stackdump)
+[stamp collection](https://rentry.co/stackdump) i like stamps
 
 ![anal](https://github.com/thegateguardian/thegateguardian/assets/134800633/ca1d30ee-286d-42a9-8389-6ed06a4ecb76)
+
+![4W6MEEV](https://github.com/user-attachments/assets/91d1631c-5e87-42a3-92aa-19b7a8db58e3)
