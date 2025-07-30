@@ -1,3 +1,4 @@
+My rentry is kind of outdated im too lazy to change it but the information is mostly accurate MHM
 
 ![sylveon](https://github.com/plushroxas/cellophane/assets/134800633/e1828d28-2400-4a06-9630-8b2401236ae6)
 ![mimikyu](https://github.com/plushroxas/cellophane/assets/134800633/c84c8eb1-3c85-4aaa-8af5-cdbffc1b3295)
@@ -5,7 +6,7 @@
 
 these are my Babies be nice to them
 
-second rentry made BY MY GOOD FRIEND JANE .......
+Second rentry made by my awesome friend hi @jane @jeffthekiIIer
 
 [stamp collection](https://rentry.co/stackdump) i like stamps
 
